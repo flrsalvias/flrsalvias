@@ -8,5 +8,3 @@ Python, Java, HTML, CSS, and many more.
 ## 🌐 Contact me
 
 Discord : fleursv
-
-Mail : flrsprv@gmail.com

@@ -1,4 +1,4 @@
-# Hi! 👋 I'm [**Fleurs**], nice to meet you 😁
+# Hi! 👋 I'm **Fleurs**, nice to meet you 😁
 
 Speaks French, English, MSA and Darija Arabic, Spanish, Sicilian, Bosnian and Amazigh!
 
